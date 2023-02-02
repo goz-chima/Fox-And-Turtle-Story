@@ -1,4 +1,4 @@
-## Turn on PC
+## Turn on PC Algorithm
 (1)Locate where your computer is <br>
 (2)Find the power button and press it once <br>
 (3)Allow it to boot <br> 
