@@ -8,3 +8,16 @@ ___
 ## Chapter 2
 
 "Hello, turtle," **Blaze** said. "Why are you so slow?" **Blaze** asked. "I'm not slow," Turbo replied. "I'm just taking my time." **Turbo** said. Without hesitation, **Blaze** challenged Turbo to a race. **Turbo** accepted the challenge, knowing that he could never outrun **Blaze**, but he was determined to give his best shot. The race began, and as expected, **Blaze** quickly took the lead, leaving Turbo far behind.
+___
+## Chapter 3
+
+But as the race continued, **Blaze** began to realize that there was more to life than speed. He saw how **Turbo** was taking the time to stop and smell the flowers and watch the birds. **Blaze** has never taken the time to appreciate the beauty of the forest before, as he was too focused on winning.
+___
+## Chapter 4
+
+Feeling ashamed, **Blaze** slowed down and waited for **Turbo** to catch up. When **Turbo** finally reached **Blaze**, **Blaze** apologized for his arrogance and asked **Turbo** to be his friend.
+___
+## Chaper 5
+
+From that day on, **Blaze** and **Turbo** were inseperable. They would race each other through the forest, but now they did it for fun, taking turns leading the way and showing each other the beauty of the forest. **Blaze** learned that true friendship was more important than winning and that true speed was not just measured by how quickly one can run, but by how much they can appreciate the journey.
+
